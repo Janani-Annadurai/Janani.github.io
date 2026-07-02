@@ -63,7 +63,7 @@ Enthusiastic law student interested in Arbitration, IPR, Criminal, Labour and Co
 
 **BA LL.B (Hons)**  
 SASTRA Deemed University, Thanjavur  
-*2021 – 2026 | CGPA: 8.00*
+*2021 – 2026 | CGPA: 8.19*
 
 **HSC — Sacred Heart Girls Higher Secondary School**  
 *2020 – 2021 | 94.4%*
@@ -92,6 +92,7 @@ SASTRA Deemed University, Thanjavur
 - *Contract Labour* — IJFMR (2023)  
 - *Legal Protection of Workers in Unorganized Sectors* — IJFMR (2023)  
 - *Pharmaceutical Patents, TRIPS and the Right to Health* — IJLLR  
+
 
 ---
 
